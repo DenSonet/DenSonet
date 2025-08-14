@@ -15,6 +15,6 @@ Is a member of TASA-Ed Studio!
 
 I am still a junior high school student, and I like to fiddle with my favorite things from time to time! So I always have three minutes of heat … 😔
 
-不过，希望我以后能够变得越来越优秀，成为一个为社会做出贡献的人！ 😎
+不过，希望我以后能够变得越来越优秀，成为一个能为社会做出贡献的人！ 😎
 
 However, I hope I can become more and more outstanding in the future and become a person who makes contributions to society! 😎
