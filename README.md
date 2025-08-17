@@ -1,4 +1,4 @@
-## 👋 你好啊！ Hello!
+## 👋 Hello!
 
 我来自中国湖南🇨🇳！
 
@@ -20,5 +20,5 @@ However, I hope I can become more and more outstanding in the future and become 
 
 ---
 
-## 📧 我的邮箱 My mailbox
+## 📧 My mailbox
 densonet@163.com
