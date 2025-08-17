@@ -1,10 +1,11 @@
-## 👋 Hello!
+## 👋 你好啊！
+Hello!
 
-我来自中国湖南🇨🇳！
+我来自中国湖南！
 
 是 TASA-Ed工作室 的一名成员！
 
-I'm from Hunan, China🇨🇳!
+I'm from Hunan, China!
 
 Is a member of TASA-Ed Studio!
 
@@ -20,5 +21,5 @@ However, I hope I can become more and more outstanding in the future and become 
 
 ---
 
-## 📧 My mailbox
+## 📧 我的邮箱
 densonet@163.com
