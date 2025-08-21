@@ -26,4 +26,4 @@ However, I hope I can become more and more outstanding in the future and become 
 ## 📧 我的邮箱
 My mailbox
 
-densonet@163.com
+densonet@outlook.com
